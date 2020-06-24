@@ -7,3 +7,4 @@ After his parent's death he was brought to his aunt's family by Hagrid, where he
 * the boy who is able to do everything 
 As Harry Potter said: 
 > Fear of a name only increases fear of the thing itself.
+<img src="https://i0.wp.com/www.betameme.com/wp-content/uploads/2019/09/harry-potter-birthday-memes.png?w=403&ssl=1"/>
