@@ -1,3 +1,7 @@
 # Harry Potter the Wizzard
 Harry Potter didn't have the chance to meet his parent, because they got killed by an evil wizzard. 
 After his parent's death he was brought to his aunt's family by Hagrid, where he grew up not knowing that he's actually a wizzard. 
+## Harry Potter's traits: 
+* scar in the shape of a flash on his forhead 
+* wears glasses with circular shape 
+* the boy who is able to do everything 
